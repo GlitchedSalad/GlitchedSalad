@@ -1,4 +1,4 @@
-I’m @GlitchedSalad
+Howdy, I’m Daniel
 - Known as Snovel elsewhere
 - Might make some Minecraft Mods
 
