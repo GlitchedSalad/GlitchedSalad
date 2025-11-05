@@ -1,6 +1,6 @@
 Howdy, I’m Daniel
 - Known as Snovel elsewhere
-- Might make some Minecraft Mods
+- Game design is cool
 
 
 <!---
